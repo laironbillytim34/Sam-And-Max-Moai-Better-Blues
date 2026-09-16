@@ -221,3 +221,6 @@ Sam & Max: Moai Better Blues is available as a complete free version with all fe
 ---
 
 Don't miss out on the excitement—download Sam & Max: Moai Better Blues today for a thrilling adventure full of laughs and mystery!
+
+---
+**Last updated:** 2026-09-16 21:54:17 UTC
